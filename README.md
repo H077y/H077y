@@ -1,4 +1,5 @@
-Ahoy, I'm **H077y**! ![KodiWave](https://cdn.discordapp.com/emojis/1155875668777775326.webp?size=24)
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/B0B0KO1DU)
+### Ahoy, I'm **H077y**! ![KodiWave](https://cdn.discordapp.com/emojis/1155875668777775326.webp?size=24)
 
 # Identity
 All updated information can be found on **[![pronouns.cc](https://cdn.discordapp.com/emojis/1141843338337734787.webp?size=16) pronouns.cc](https://pronouns.cc/@Dragon)**.
