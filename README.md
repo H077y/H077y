@@ -1,19 +1,19 @@
 Ahoy, I'm **H077y**! ![KodiWave](https://cdn.discordapp.com/emojis/1155875668777775326.webp?size=24)
 
 # Identity
-All updated information can be found on [pronouns.cc](https://pronouns.cc/@Dragon).\
+All updated information can be found on **[![pronouns.cc](https://cdn.discordapp.com/emojis/1141843338337734787.webp?size=16) pronouns.cc](https://pronouns.cc/@Dragon)**.
 ## Names
 - ❤️ **Toaster** or **Dragon**
 - ✅ **Emperor** or **Harry** or **Harrious**
-- 👍 **Hozzy**
 ## Pronouns
+[![Pronounflux](https://cdn.discordapp.com/emojis/1038916042786885752.gif?size=16) **Pronounflux**](https://pronouns.cc/@Dragon)
 - ❤️ **[He/Him](https://en.pronouns.page/he)** or **[It/Its](https://en.pronouns.page/it)**
 - ✅ **[E/Em](https://en.pronouns.page/e)**
 - 👍 **[Dragon/Dragon's](https://en.pronouns.page/:dragon)** or **[Ki/Kin](https://en.pronouns.page/ki)**
 ## Labels
-- 🐉 Dragonkin
-- ![Transmasc](https://cdn.discordapp.com/emojis/1017100845059407952.webp?size=24) Transgender Man
-- ![Aroacespec](https://cdn.discordapp.com/emojis/1062750642113871892.gif?size=24) Aroacespec
+- ![Dragonkin](https://cdn.discordapp.com/emojis/1141845202395484181.webp?size=16) Dragonkin
+- ![Transmasc](https://cdn.discordapp.com/emojis/1017100845059407952.webp?size=16) Transgender Man
+- ![Aroacespec](https://cdn.discordapp.com/emojis/1062750642113871892.gif?size=16) Aroacespec
 - 🧑 Over 18
 - 🇬🇧 English
 - 🔒 Taken
@@ -36,3 +36,14 @@ Come join us!
 - [ToyHou.se](https://toyhou.se/H077y) (Character Storage)
 - [Kodi](https://toyhou.se/23340520.kodi) (Fursona)
 - Feel free to contact me on Discord to chat about my characters and roleplays
+## Games
+- Rain World
+- Minecraft
+- VRChat
+- Grand Theft Auto 5
+- Civilisation VI
+- Bloons Tower Defense 6
+- Sea of Thieves
+- Slime Rancher (1&2)
+- Terraria
+- Red Dead Online
