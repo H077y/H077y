@@ -29,8 +29,7 @@ We plan on creating species and running events for all to enjoy. We have a verif
 Come join us!
 # Interests / Hobbies
 ## Discord Moderator
-- [World of Walker](https://discord.gg/alanwalker) (106k+)
-- [Bot Designer for Discord](https://discord.gg/botdesigner) (55k+)
+- [Bot Designer for Discord](https://discord.gg/JcENFCf) (60k+)
 - [WidgetBot](https://discord.gg/sXPfjFp) (15k+)
 - [FurCity](https://discord.gg/awoo) (3k+)
 ## Roleplaying
