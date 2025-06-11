@@ -31,7 +31,7 @@ Come join us!
 ## Discord Moderator
 - [Bot Designer for Discord](https://discord.gg/JcENFCf) (60k+)
 - [WidgetBot](https://discord.gg/sXPfjFp) (15k+)
-- [FurCity](https://discord.gg/awoo) (3k+)
+- [Pride Flag Emojis](https://discord.gg/pfe) (7k+)
 ## Roleplaying
 - [ToyHou.se](https://toyhou.se/H077y) (Character Storage)
 - [Kodi](https://toyhou.se/23340520.kodi) (Fursona)
